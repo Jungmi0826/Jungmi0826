@@ -2,7 +2,7 @@
 
 <!---
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me : designer.jungmi@gmail.com
 - 👋 Hi, I’m @Jungmi0826
 - 👀 I’m interested in design
 - 🌱 I’m currently learning design
